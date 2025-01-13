@@ -1,0 +1,1 @@
+Why am I here, when I could be reading "On Writing Well" or a review of Weep not, Child. Or writing js code on a promodoro timer website, or reading "Dust" or reading "Build a career in Data Science" or doing leetcode dsa questions, or doing hackerrank..?
